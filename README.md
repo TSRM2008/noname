@@ -1,2 +1,2 @@
 # noname
-Only idiot read this shit;))
+POV:Only idiot read this shit;))
